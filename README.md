@@ -1,2 +1,1 @@
-# sha
-shā: u6BBA
+# shā: u6BBA
